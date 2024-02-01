@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maus66
+- 👋 Hi, I’m @Maus66 or
 - 👀 I’m interested in the world
 - 🌱 I’m currently learning world
 - 💞️ I’m looking to collaborate on boosting
