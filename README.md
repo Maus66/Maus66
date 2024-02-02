@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Maus66 or
 - 👀 I’m interested in the world
 - 🌱 I’m currently learning world
-- 💞️ I’m looking to collaborate on boosting
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Like crypto
