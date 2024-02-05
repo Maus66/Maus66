@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Maus66 or no?
 - 👀 I’m interested in the world
 - 🌱 I’m currently learning world
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate onn
 - 📫 How to reach me ...
 - 😄 
 - ⚡ Fun fact: Like crypto
