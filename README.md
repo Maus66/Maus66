@@ -2,7 +2,7 @@
 - 👀 I’m interested in the world
 - 🌱 I’m currently learning world
 - 💞️ I’m looking to collaborate onn
-- 📫 How to reach me who
+- 📫 How to reach me 
 - 😄 
 - ⚡ Fun fact: Like crypto
 
