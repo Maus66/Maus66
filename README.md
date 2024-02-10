@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maus
-- 👀 I’m interested in the world
+- 👀 I’m interested 
 - 🌱 I’m currently learning world
 - 💞️ I’m looking to collaborate onn
 - 📫 How to reach me 
