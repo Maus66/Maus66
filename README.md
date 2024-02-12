@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate onn
 - 📫 How to reach me 
 - 😄 
-- ⚡ Fun fact: Like crypto!
+- ⚡ Fun fact: Like crypto! ну
 
 <!---
 Maus66/Maus66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
