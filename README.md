@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Maus66
 - 👀 I’m interesting
-- 🌱 I’m currently learning world
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate onn
 - 📫 How to reach me 
 - 😄 Smile
