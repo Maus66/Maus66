@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning many
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me 
-- 😄 Smile
+- 😄 Smile or not
 - ⚡ Fun fact: Like crypto!
 
 <!---
