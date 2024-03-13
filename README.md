@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maus66
+- 👋 Hi, I’m @Maus66 -
 - 👀 I’m interesting
 - 🌱 I’m currently learning many
 - 💞️ I’m looking to collaborate 
