@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me 
 - 😄 Smile not cry
-- ⚡ Fun fact: big dream
+- ⚡ Fun fact: 
 
 <!---
 Maus66/Maus66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
