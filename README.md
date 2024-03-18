@@ -2,7 +2,7 @@
 - 👀 I’m interesting
 - 🌱 I’m currently learning many
 - 💞️ I’m looking to collaborate 
-- 📫 How to reach me 
+- 📫 How to reach me who knows
 - 😄 Smile 
 - ⚡ Fun fact: 
 
