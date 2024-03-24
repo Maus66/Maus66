@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me who knows
 - 😄 Smile 
-- ⚡ Fun fact: 
+- ⚡ Fun fact: linea
 
 <!---
 Maus66/Maus66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
